@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JKDisplay
-- 👀 I’m interested in ...Anime, Video Games, Trading Cards, Comic Books, Movies, Larping, Photography, Metal music, and Trains
+- 👀 I’m interested in ...Anime, Video Games, Trading Cards, Comic Books, Movies, Larping, Photography, Metal and Electronic Music, and Trains
 - 🌱 I’m currently learning ...JavaScript, HTML5, CSS
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...jkipps0503@gmail.com
